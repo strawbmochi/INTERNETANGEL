@@ -1,5 +1,9 @@
 # INTERNETANGEL
-![image](https://github.com/user-attachments/assets/f18105a2-7b2c-40c1-9630-4f26a49b9ffc)
+
+![image](https://github.com/user-attachments/assets/81b952ef-1837-44e7-a444-e1ec00042ea0)
+
+
+
 HAII!! ^_^ my name is flora ,, im 16 yrs old
 '
 ' 
