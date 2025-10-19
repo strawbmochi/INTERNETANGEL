@@ -15,7 +15,7 @@ HAII!! ^_^ my name is flora ,, im 16 yrs old
 
 *(dni means that i wont interact w you and will simply ignore + hide you if you try)*
 
-Proshippers, trolls, DandysWorldFans, any exfriends (if they find me somehow) n mean ppl
+Proshippers, trolls, 007n7 + 118o8 + azure yumes n mean ppl
 
 **INT**
 
@@ -24,7 +24,7 @@ Proshippers, trolls, DandysWorldFans, any exfriends (if they find me somehow) n 
 CRKfans, Forsakenfans, NSOfans, TVgirlfans, Pokemonfans, n anyone who likes cute anime ^_^
 
 ![IMG_2009](https://github.com/user-attachments/assets/3a5cd717-a070-450b-a63a-2530f377c8a9)
-THANK YOU FOR READING!! if you would like to send smth check my strawpage and send me a gimmick (should be linked in my profile if i finished it)
+THANK YOU FOR READING!! if you would like to send smth check my strawpage and send me a gimmick
 
 ![IMG_2011](https://github.com/user-attachments/assets/a60ad138-711a-47e3-a910-0b0422e5850c)
 ![IMG_2010](https://github.com/user-attachments/assets/1c1dd26f-3870-4a25-9b42-cb2f02a8c976)![IMG_2019](https://github.com/user-attachments/assets/53c6ff85-ce93-4733-a6cb-a4990896a824)
