@@ -1,10 +1,10 @@
-# INTERNETANGEL
+# HANANIMAL
 
 ![image](https://github.com/user-attachments/assets/81b952ef-1837-44e7-a444-e1ec00042ea0)
 
 
 
-HAII!! ^_^ my name is flora ,, im 16 yrs old
+HAII!! ^_^ my name is hana ,, im 16 yrs old
 '
 ' 
   ![image](https://github.com/user-attachments/assets/63ff5654-445d-40bd-bb3f-665c3967d98b)
